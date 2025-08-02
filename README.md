@@ -11,7 +11,7 @@
 - 📧 [burakgzl600@gmail.com](mailto:burakgzl600@gmail.com)
 
 ### 🎉 İlginç Bilgi
-> Teknolojiyi seviyorum, kod yazarken kahve içmeden duramıyorum.
+> Teknolojiyi seviyorum
 
 ---
 
